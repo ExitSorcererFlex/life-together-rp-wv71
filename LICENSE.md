@@ -1,4 +1,4 @@
-
+automatic life together rp Scripts offers the most advanced life together rp Script, with aimbot and no cooldown. Perfect for dominating any match.
 
 
 
